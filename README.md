@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Franz!
-- 👀 I love coding, creative thinking and blockchain
+- 👀 I love coding, creative thinking and decentralization
 - 📫 Follow and connect with me on [twitter](https://twitter.com/franzquarshie)
  
 
