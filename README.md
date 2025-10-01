@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Franz!
 - 👀 I love coding, creative thinking and decentralization
-- 📫 Follow and connect with me on [twitter](https://twitter.com/franzquarshie)
+- 📫 Follow and connect with me on [X](https://x.com/qfranznana)
  
 
 <!---
